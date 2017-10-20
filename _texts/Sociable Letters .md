@@ -62,7 +62,7 @@ I Hope you will not make the Mistake of a Word a Crime in my Wit, as some former
 
 #### UPON HER EXCELLENCY THE AUTHORESS.
 
-<l>This Lady only to her self she Writes,     
+This Lady only to her self she Writes,     
 And all her Letters to her self Indites;     
 For in her self so many Creatures be,     
 Like many Commonwealths, yet all Agree.     
@@ -131,9 +131,9 @@ And Write all Truly down, having no Bribe. 
 
 #### TO THE CENSORIOUS READER.
 
-- Reader, you'l think, perchance, my Wit in Fault,       
-- Like Meat that's too much Brin'd, and Oversalt,     
-- But better Poets far than I have been,   
+Reader, you'l think, perchance, my Wit in Fault,       
+Like Meat that's too much Brin'd, and Oversalt,     
+But better Poets far than I have been,   
 Have written Sharper, and with Greater Splene,     
 Yet they have much been Prais'd for writing so,     
 And on Advancing Stigues of Fame do go;   
