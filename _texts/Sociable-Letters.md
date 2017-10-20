@@ -182,5 +182,111 @@ Your very faithful Friend, and Servant. 
 
 ---
 
+###### III.
+
+MADAM,  
+I Do not wonder, there are great factions between the three families C. Y. O. by reason they have no business, or imployment to busie their heads about, and their servants & followers have as little to do, which makes them censure, backbite, and envy each other; for Idleness and Poverty are the creators of Faction, and Pride 4 and Ambition the disturbers of Peace. Wherefore Idleness should be banish'd out of every family, which will also be a means to be rid of Poverty, for Industry is the way to thrive: Besides, when men have something to do, they will have the less time to talk; for many words from discontented persons increase hate, and make dissentions: the truth is, words for the most part make more discord than union, and more enemies than friends; wherefore Silence is more commendable than much Speaking, for the liberty of the tongue doth rather express men's follies, than make known their wit; neither do many words argue much Judgement; but as the old Saying is, The greatest talkers are the least actors, they being more apt to speak spitefully, than to act mischievously; another Saying is, That musing men rather study to do evil, than contemplate on good; But I am not of that opinion, for if men would think more, and speak less, the world of mankind would be more honest and wiser than they are, for Thoughts beget Consideration, Consideration begets Judgement, Judgement begets Discretion, Discretion begets Temperance, and Temperance begets Peace in the Mind, and Health in the Body, for when men want Temperance, they are subject to Insatiable Appetites, unruly Passions, and wandring Desires, which causes Covetousness and Ambition, and these cause Envy and Hate, which makes Faction and Strife, which 5 Strife I leave to Busie Natures, Restless Minds, Vain Humours, and Idle Fools, and rest,
+
+Madam,   
+Your faithful Friend and Servant. 
+
+---
+
+
+###### IV.
+
+MADAM,  
+The other day was here the Lady I. O. to see me, and her three Daughters, which are call'd the three Graces, the one is Black, the other Brown, the third White, all three different coloured beauties; also they are of different features, statures and shapes, yet all three so equally handsom, that neither Judgment nor Reason can prefer one before another: Also their behaviours are different; the one is Majestical, the other Gay and Aery, the third Meek and Bashful; yet all three graceful, sweet and becoming: Also their Wits are different; the one Propounds well, the other Argues well, the third Resolves well; all which make a harmony in discourse. These three Ladies are resolv'd never to marry, which makes many sad Lovers; but whilst they were here, in comes the Lord S. C.and discoursing with them, at last he asks them, whether they were seriously resolv'd never to marry? they answered, they were resolv'd never to marry: 6 But, Ladies, said he, Consider, Time wears out Youth, and fades Beauty, and then you will not be the three young fair Graces; You say true, my Lord, answer'd one of them, but when we leave to be the young fair Graces, we shall then be the old wise Sibyls. By this answer you may perceive, that when our Sex cannot pretend to be Fair, they will pretend to be Wise; but it matters not what we pretend to, if we be really Virtuous, which I wish all our Sex may be, and rest,
+
+Madam,  
+Your very faithful Friend and Servant. 
+
+---
+
+
+###### V.
+
+MADAM,  
+In my opinion the marriage between Sir A. G. and Mrs. I. S. is no wayes agreeable, wherefore not probable to be bless'd with a happy union, though she is likelyer to be the happier of the two; for 'tis better to have an old doting fool, than a wanton young filly; but he will be very unhappy through Jealousie, what with his Dotage, and her Freedom, which will be like fire and oyl, to set his mind on a flame, and burn out the lamp of his life: Truly, I did wonder, when I heard they were married, knowing her nature and his humour, for she loves young masculine Company, and he loves onely 7 young female Companion; so that he cannot enjoy her to himself, unless she barr her self from all other men for his sake, which I believe she will not do, for she will not bury her Beauty, nor put her Wit to silence for the sake of her Husband; for, if I be not mistaken, she will love a young Servant better than an old Husband; nay, if her Husband were young, she would prefer variety of Servants, before a single Husband, insomuch, that if she had been made, when there was but One man, as Adam, she would have done like her Grand mother Eve, as to have been courted by the Devil, and would betray her Husband for the Devil's sake, rather than want a Lover. But leaving the discourse of Jealousie, Age, Courtship, and Devils, I rest,
+
+Madam,   
+Your very faithful Fr. & S. 
+
+---
+
+###### VI.
+
+MADAM,  
+In your last Letter you sent me word, that Sir F. O. was retir'd to write his own Life, for he saies, he knows no reason, but he may write his own life as well as Guzman; and since you desire my opinion of his intended work, I can onely say, that his Life for any thing I know to the contrary, hath been as evil as Guzman's, but whether his Wit be as good as Guzman's, I knoW not, yet I doubt the Worst, and to Write 8 an Evil life Without Wit, Will be but a dull and tedious Story, indeed so tedious and dull, as I believe none will take the pains to read it, unless he himself read of himself: but it is to be hoped, that he will be tir'd of himself, and so desist from his self Story. And if he do write his own Life, it will be as a masking Dolphin, or such like thing, where the outside is painted past-board or canvas, and the inside stuff'd with shreds of paper, or dirty raggs, scrap'd from dunghils: and if he set his Picture before, as a Frontispiece to his Book, it will be like an ill-favour'd masking Vizzard. But if he have any Friends, surely they will perswade him to imploy his time about something else; but some are so unhappy, as they have nothing to imploy Time with; they can waste Time, but not imploy Time; and as they waste Time, so Time wasts them. There's a saying, That men are born to live, and live to dye; but I think some are onely born to dye, and not to live; for they make small use of life, and life makes small use of them; so that in effect they were ready for the Grave, as soon as they came forth from the Womb. Wherefore if Sir F. O. go forward with his work, he will dig his Grave through the story of his Life, and his Soul-less Wit will be buried therein. But leaving his dead Wit to his paper Coffin, and his unprofitable Labours to his black mourning Ink, I rest,
+
+Madam,  
+Your faithful Fr. and S. 
+
+---
+
+###### VII.
+
+MADAM,  
+I Am sorry to hear, Wit is so little known and understood, that Sir W. T. should be thought Mad, because he hath more Wit than other men; indeed Wit should alwayes converse with Wit, and Fools with Fools; for Wit and Fools can never agree, they understand not one another; Wit flies beyond a Fools conceit or understanding, for Wit is like an Eagle, it hath a strong wing, and flies high and far, and when it doth descend, it knocks a Fool on the head, as an Eagle doth a Dotril, or a Woodcock, or such like Birds; and surely the world was never so fill'd with Fools, as it is in this age, nor hath there been greater Errours, or grosser Follies committed than there hath been in this age: It is not an age like Augustus Caesar's, when Wisdom reign'd, and Wit flourished, which was the cause of Plenty & Peace throughout the whole world: but in this age Debauchery is taken for Wit, and Faction for Wisdom, Treachery for Policy, and drunken Quarrels for Valour: Indeed the world is so foolishly Wicked, & basely Foolish, that they are happiest who can withdraw themselves most from it: But when I say the world, I mean the world of Men, or rather the Bodies of Men, for there doth not seem to be many Rational Souls amongst them, they 10 are Soul-less men, Bodies of men that have only Senses and Appetites, or Sensual Appetites. But you say, every Particular complains of the world, as I do in this Letter, yet None helps to mend it. Let me tell you, Madam, it is not in the power of every Particular, nor in a number, But the Chiefest persons must mend the world; viz. they that govern the world, or else the world will be out at the heels. But in some ages the world is more tatter'd and torn, than in other ages; and in some ages the world is patch'd and piec'd, but seldom new and suitable; and it is oftener in a Fools-coat than in a Grave Cassock. Wherefore leaving the motley, I rest,
+
+Madam,   
+Your faithful Friend and Servant. 
+
+---
+
+
+###### VIII.
+
+MADAM,  
+You were pleas'd to invite me unto a Ball, to divert my Melancholy Thoughts, but they are not capable of your Charity, for they are in too deep a Melancholy to be diverted; like as bodies that are starved, and almost dying for hunger, so weak as they cannot feed, at least, that want strength to nourish or digest, having not life enough to re-inkindle the vital fire, which want of food hath neer put out. Thus, 11 Madam, I do not refuse your Charity, but I am not capable to receive it; Besides, my very outward appearance would rather be an Obstruction to your Mirth, than any Addition to your Pleasures, and for me, it would be very improper; for a grieved heart, weeping eyes, sad countenance, and black mourning garments, will not be suitable with dancing legs; In truth, my leaden Spirits have soder'd up my Joynts so stiff, that they will not move so agilly, as is requir'd in Dancing; I am fitter to sit upon a Grave, than to tread measures on a Carpet; and there is such an Antipathy in my mind to light Aires, that they would sooner stop my Ears as Discord, than enter into my Hearing as Harmony; indeed my Senses are as closed or shut from the world, and my Mind is benighted in Sorrow, insomuch as I have not one lighted thought, they are all put out with the memory of my Loss. Thus, Madam, Memory hath made an Oblivion; but though it hath buried for the present the worldly Joys of my Life, yet it hath not buried my grateful Thanks for your Favours, for which I am,
+
+Madam,   
+Your most humble S. 
+
+---
+
+###### IX.
+
+MADAM,  
+In your last Letter I perceive that the Lady N. P. is an actor in some State-design, or at least would be thought so, for our Sex in this age, is ambitious to be State-Ladies, that they may be thought to be Wise Women; but let us do what we can, we shall prove our selves Fools, for Wisdom is an enemy to our Sex, or rather our Sex is an enemy to Wisdom. 'Tis true, we are full of Designs and Plots, and ready to side into Factions; but Plotting, Designing, Factions, belong nothing to Wisdom, for Wisdom never intermeddles therein or therewith, but renounces them; it is onely cheating Craft and Subtilty that are the managers thereof: and for deceiving Craft, Women are well practised therein, and most of them may be accounted Politicians; for no question but Women may, can, and oftentimes do make wars, especially Civil wars; witness our late Civil war, wherein Women were great, although not good actors; for though Women cannot fight with warring arms themselves, yet they can easily inflame men's minds against the Governours and Governments, unto which Men are too apt even without the perswasion of Women, as to make innovation through envy and emulation, in hopes of advancement in Title, Fortune and Power, of 13 which Women are as ambitious as Men; but I wish for the honour of our Sex, that Women could as easily make peace as war, though it is easier to do evil than good, for every fool can make an uproar, and a tumultuous disorder, such as the wisest can hardly settle into order again. But Women in State-affairs can do as they do with themselves, they can, and do often make themselves sick, but when they are sick, not well again: So they can disorder a State, as they do their Bodies, but neither can give Peace to th' one, nor Health to th' other; but their restless Minds, and unsatiable Appetites, do many times bring Ruin to the one, and Death to the other; for Temperance and Quietness are strangers to our Sex. But leaving the Lady N. P. to her petty Designs, and weak Plots, I rest,
+
+Madam,   
+Your very faithful Fr. and S. 
+
+---
+
+
+###### X.
+
+MADAM,  
+In your last Letter you were pleased to tell me for news, that C. V. was newly made a Lord; truly he deserves it, and if his Title were to be measur'd, it would be far short of his Merit, but it is a greater honour to have more Merit than Title, than to have more Title than 14 Merit. Indeed Title ought to be but as a Sign; as the King's Arms or Picture to a Shop of a rich Merchandise; so Title should be but to have it known there is a worthy Person, who is full of Noble Qualities, Moral Virtues, Sweet Graces, Divine Influences, Learned Sciences, Wise Counsels, and the like, which ought to be commerced and traffick'd within the world, for their own and others good, benefit and pleasure; for the riches of the Mind must do as other riches, which is to disperse about, not to lie unprofitably hid, and horded up from all use; but they ought to be as Staple Commodities, and not as Trifles of Vanity, which wear out, or are laid by, as mens humours change, and are more for fashion than benefit. But some men seem to be richer than they are, and some to be poorer than they are; they that seem richer than they are, lay all in their outward Shops, and those that seem poorer than they are, lay all in their inward Ware-houses: Those that lay all in their outward Shops are vain-glorious Persons, those that lay all in their inward Ware-houses are magnanimous Persons; But womens Minds or Souls are like Shops of small-wares, wherein some have pretty toyes, but nothing of any great value. I imagine you will chide me for this opinion, and I should deserve to be chidden, if all Women were like to you; but you are but one, and I speak of Women, not of One woman; and thus I am neither injurious to You, nor partial to our Sex; but I wish with all my heart, our 15 whole Sex were like you, so I might hope to be one of your Copies, and though you are an example not to be pattern'd, yet I will endeavour to imitate you as much as I can, by which I may be so much the more worthy to be
+
+Your Ladiships Humble Servant. 
+
+
+---
+
+###### XI.
+
+MADAM,  
+I Hear the Lady B. A. and the lady C. D. are gone to be Courtiers, but I believe they will neither agree with the Court, nor the Court with them; for the one hath been bred fitter for a Nunnery than a Court, and the other bred to good huswifry, fitter for the Countrey than a Court; the truth is, Sparing is unnatural for a Courtier, and Praying is not usual for a Courtier, yet those Ladies that are Beautiful are made Saints there, and the men are their Devouts, which offer them Vows, Prayers, Praises, and sometimes Thanksgiving, and many times they are Penitents; but when the Ladies Beauties decay, the men become Apostates. Thus you may see many of our Sex are made Saints, though they be Sinners, but they are Sainted for theit Beauty, not for their Piety, for their outward Form, not for their inward Grace: Indeed they are worldly Saints, and the Court 16 is their Heaven, and Nature their Goddess, which indues them with attractive Graces; to which I leave them, and rest,
+
+Madam,   
+Your faithful Fr. and S. 
+
+----
+
+###### XII.
+
+MADAM,  
+I Hear the Lady D. C. makes Politick feasts and entertainments, feasting the Courtiers, and entertaining them with dancing and carding, to whom she doth Politickly lose her mony, and causes her husband to lend them mony out of a Policy, and 'tis likely she will Politickly ruin her husband; for I believe she is more Politick with her husband than with the Courtiers, and they more Politick with her than her husband. But many wives will perswade their husbands to invite company, pretending some Designs, whenas their chief Design is, to have Company; and they will be very free and frolick with their guests, making their husbands believe they are so onely to compass, or bring their Designs to pass; so as they make their husbands Pimps to Cuckold themselves, who think their wives wise women, both in their Counsels and Actions: Such, and the like inventions and excuses wives have to be in company; and it is to be observed, that those wives that 17 love freedom and company, will be so very kind to their husbands when they bring home company, or are with such company as they like, that not onely strangers, but their husbands think them for that time the best wives in the world; whenas being all alone, to their husbands, the Furies are no more turbulent, nor worse natur'd than they; But in much company all is as their husbands please, whether to dance or play; upon which kind words and humble behaviour, their husbands are so ravish'd with joy, as then it is what their wives please; nay, they intreat their Wives to please themselves, and approve of all they say or do. Other Wives, to get, or be in company, Will insinuatingly flatter, and persWade their husbands, that they are the wisest, or wittiest men in the world, and that there is none that knows how to entertain company but they; that for their own parts they hate much company, as nothing so tedious and troublesome, and onely take delight to see their husbands entertain guests, and love to hear them discourse with strangers, their wit and behaviour being so far above others; and to encourage their husbands, or to flatter them the more, they will repeat their Discourses when they are alone together, as how well such or such a question was resolv'd, or how wittily such or such a one was answer'd, and the like; whereupon the husband often invites company, onely for his wife to hear his supreme Wit, wise Sentences, and to see his grave Entertainments, 18 whenas his wife laughs in her mind to hear what a Fool, and to see what a formal Coxcomb, and how self-conceited he is. Thus most husbands are either deluded with Politick wives, or forced to obey, or humour their Turbulent and Peevish wives, or deceived by their Insinuating and Flattering wives, to betray themselves. But fearing I should divulge too much of the nature of our Sex, I stop here, and rest,
+
+Madam,   
+Your faithful Fr. & S. 
+
+
+
+
+
 
 
