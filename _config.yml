@@ -2,16 +2,16 @@
 
 # Setup
 title:               DCP Reading Editions
-tagline:             'a jekyll theme for minimal editions'
-description:         'Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
-url:                 'http://elotroalex.github.io'
+tagline:             'Plain Text Reading Editions of Works Written by Margaret Cavendish, Duchess of Newcastle (1623-1673)'
+description:         'These editions are supported by Ed. Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
+url:                 'http://digicavendish.github.io'
 baseurl:             '/ed'
 
 # About/contact
 author:
-  name:              Alex Gil
-  url:               https://twitter.com/elotroalex
-  email:             colibri.alex@gmail.com
+  name:              Shawn W. Moore
+  url:               https://twitter.com/S_moores
+  email:             digitalcavendishproject@gmail.com
 
 # Permalinks
 
