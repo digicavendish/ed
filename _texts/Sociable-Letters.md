@@ -62,70 +62,70 @@ I Hope you will not make the Mistake of a Word a Crime in my Wit, as some former
 
 #### UPON HER EXCELLENCY THE AUTHORESS.
 
-- This Lady only to her self she Writes,     
-- And all her Letters to her self Indites;     
-- For in her self so many Creatures be,     
-- Like many Commonwealths, yet all Agree.     
-- Man's Head's a World, where Thoughts are Born and Bred,      
-- And Reason's Emperour in every Head;      
-- But in all Heads doth not a Caesar Reign,    
-- A Wise Augustus hath not every Brain,     
-- And Reason in some Brains from Rule's put out.      
-- By Mad, Rebellious Thoughts, and Factious Rout;     
-- And Great Disorder in such Brains will be,     
-- Not any Thought with Reason will Agree;     
-- But in her Brain doth Reason Govern well,     
-- Not any Thought 'gainst Reason doth Rebell,     
-- But doth Obey what Reason doth Command,     
-- When 'tis his Will, doth Travel Sea and Land,     
-- As some do Travel out to Kingdomes far,     
-- And Guided are by Observation's Star,     
-- They bring Intelligence from every State,     
-- Their Peace, their Wars, their Factions, and their Hate,     
-- And into every City Travel free,     
-- Relate their Customs, Trafficks, Policy,     
-- Observe each Magistrate, their Formal Face,     
-- And what Authority they bear, or Place,      
-- Whether they Covetously do Extort,     
-- Or are Ambitious, giving Bribes at Court,     
-- To Raise to Places, or to Hide their Crime,     
-- For thus Men do to Wealth and Office Clime;   
-- And some into the Churches go to see   
-- Who Kneels in Pray'r, or comes for Company,   
-- Who Courts his Mistress as his only Saint,   
-- Implores her Favour, and makes his Complaint   
-- Be Known, Or who doth turn her eyes about,   
-- To shew her Face, or seek a Lover out;   
-- And some to Balls, and Masks, and Playes do go,   
-- And some do Crowd to see a Pagan Shew,   
-- And some within Kings Courts do get a Place,   
-- Observe the Grandeur, and the Courtly Grace,   
-- The Ceremony and Splendor of a Court,   
-- Their Playes, Balls, Masks, and every several Sport,   
-- And all their Amorous Courtships which they make,   
-- And how the Ladies do each Courtship take,   
-- The Antick Postures of the Younger Race,   
-- Their Mimick Gestures, and Affected Pace,   
-- Their Amorous Smiles, and Glancing Wanton Eyes,   
-- All which do Noble Souls Hate and Despise;   
-- And some amongst the Privy-Counsel get,   
-- Where round a Table Prince and Nobles sit,   
-- Hear what they say, Observe their Cross Debates,   
-- And mark which speaks through Faction, or which Hates   
-- Some Lord that is in Favour more than he,   
-- For in States Matters seldom they Agree.   
-- And thus Her Thoughts, the Creatures of her Mind,   
-- Do Travel through the World amongst Mankind,   
-- And then Return, and to the Mind do bring  
-- All the Relations of each several thing;   
-- And Observation Guides them back again   
-- To Reason, their Great King, that's in the Brain:   
-- Then Contemplation calls the Senses straight,   
-- Which Ready are, and Diligently Wait,   
-- Commanding Two these Letters for to Write,   
-- Touch in the Hand, as also the Eye-sight,   
-- These Two the Soul's Clerks are, which do Inscribe,   
-- And Write all Truly down, having no Bribe.  
+This Lady only to her self she Writes,     
+And all her Letters to her self Indites;     
+For in her self so many Creatures be,     
+Like many Commonwealths, yet all Agree.     
+Man's Head's a World, where Thoughts are Born and Bred,      
+And Reason's Emperour in every Head;      
+But in all Heads doth not a Caesar Reign,    
+A Wise Augustus hath not every Brain,     
+And Reason in some Brains from Rule's put out.      
+By Mad, Rebellious Thoughts, and Factious Rout;     
+And Great Disorder in such Brains will be,     
+Not any Thought with Reason will Agree;     
+But in her Brain doth Reason Govern well,     
+Not any Thought 'gainst Reason doth Rebell,     
+But doth Obey what Reason doth Command,     
+When 'tis his Will, doth Travel Sea and Land,     
+As some do Travel out to Kingdomes far,     
+And Guided are by Observation's Star,     
+They bring Intelligence from every State,     
+Their Peace, their Wars, their Factions, and their Hate,     
+And into every City Travel free,     
+Relate their Customs, Trafficks, Policy,     
+Observe each Magistrate, their Formal Face,     
+And what Authority they bear, or Place,      
+Whether they Covetously do Extort,     
+Or are Ambitious, giving Bribes at Court,     
+To Raise to Places, or to Hide their Crime,     
+For thus Men do to Wealth and Office Clime;   
+And some into the Churches go to see   
+Who Kneels in Pray'r, or comes for Company,   
+Who Courts his Mistress as his only Saint,   
+Implores her Favour, and makes his Complaint   
+Be Known, Or who doth turn her eyes about,   
+To shew her Face, or seek a Lover out;   
+And some to Balls, and Masks, and Playes do go,   
+And some do Crowd to see a Pagan Shew,   
+And some within Kings Courts do get a Place,   
+Observe the Grandeur, and the Courtly Grace,   
+The Ceremony and Splendor of a Court,   
+Their Playes, Balls, Masks, and every several Sport,   
+And all their Amorous Courtships which they make,   
+And how the Ladies do each Courtship take,   
+The Antick Postures of the Younger Race,   
+Their Mimick Gestures, and Affected Pace,   
+Their Amorous Smiles, and Glancing Wanton Eyes,   
+All which do Noble Souls Hate and Despise;   
+And some amongst the Privy-Counsel get,   
+Where round a Table Prince and Nobles sit,   
+Hear what they say, Observe their Cross Debates,   
+And mark which speaks through Faction, or which Hates   
+Some Lord that is in Favour more than he,   
+For in States Matters seldom they Agree.   
+And thus Her Thoughts, the Creatures of her Mind,   
+Do Travel through the World amongst Mankind,   
+And then Return, and to the Mind do bring  
+All the Relations of each several thing;   
+And Observation Guides them back again   
+To Reason, their Great King, that's in the Brain:   
+Then Contemplation calls the Senses straight,   
+Which Ready are, and Diligently Wait,   
+Commanding Two these Letters for to Write,   
+Touch in the Hand, as also the Eye-sight,   
+These Two the Soul's Clerks are, which do Inscribe,   
+And Write all Truly down, having no Bribe.  
 
 ---
 
