@@ -1,3 +1,10 @@
+---
+layout: post
+title:  "Playes"
+date:   2017-10-27 12:59:44 -0400
+categories: 
+---
+
 # PLAYES  
 ##### Written by the         
 #### _Thrice NOBLE, ILLUSTRIOUS_ 
