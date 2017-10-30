@@ -6,6 +6,7 @@ editor: Jacob Tootalian
 rights: Public Domain
 source: EEBO-TCP Phase 1
 publication-date: 2017
+
 ---
 
 ---
