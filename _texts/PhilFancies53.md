@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "Philosophical Fancies."
+title: "Philosophical Fancies"
 author: Margaret Cavendish, Duchess of Newcastle
 editor: Jacob Tootalian
 rights: Public Domain
