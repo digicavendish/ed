@@ -1,9 +1,16 @@
 ---
 layout: post
 title:  "Sociable Letters"
-date:   2017-10-18 12:59:44 -0400
-categories: 
+author: Margaret Cavendish, Duchess of Newcastle
+editor: Shawn Moore
+source: EEBO-TCP Phase I
+publication-date:   2017
 ---
+
+CCXI.
+SOCIABLE LETTERS,
+WRITTEN BY THE THRICE NOBLE, ILLUSTRIOUS, AND EXCELLENT
+PRINCESS, THE LADY MARCHIONESS OF NEWCASTLE. LONDON. Printed by William Wilson, _Anno Dom._ M.DC.LXIV.
 
 
 #### TO THE LADY MARCHIONESS OF NEWCASTLE, On her Book of EPISTLES.
