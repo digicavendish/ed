@@ -1156,12 +1156,12 @@ My will is done, and that please Woman best.
 ---
 
 ### A Farewell to the MUSES.
-FArewell my Muse, thou gentle harmlesse Spirit,  
+Farewell my Muse, thou gentle harmlesse Spirit,  
 That us'd to haunt me in the dead of Night.    
 And on my Pillow, where my head I laid,  
 Thou sit'st close by, and with my Fancies play'd:  
 Sometimes upon my Eyes you dancing skip,  
-Making a vision of some fine Land-ski  
+Making a vision of some fine Land-skip.  
 Thus with your sportings, kept me oft awake,  
 Not with your noise, for nere a word you spake:  
 But with your Faiery dancing, circling winde,  
