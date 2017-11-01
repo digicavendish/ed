@@ -10,7 +10,7 @@ date: 2017
 ---
 
 ### The WORLDS OLIO.  
-#### WRitTEN By The Right HONORABLE, The Lady MARGARET NEWCASTLE.  
+#### WRITTEN By The Right HONORABLE, The Lady MARGARET NEWCASTLE.  
 ##### LONDON Printed for J. Martin and J. Allestrye at The Bell in St. Pauls Church-Yard 1655.  
 
 ---
