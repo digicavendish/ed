@@ -1,6 +1,6 @@
 ---
 layout: narrative
-title: "The Worlds Olio"
+title: The Worlds Olio
 author: Margaret Cavendish, Duchess of Newcastle
 editor: Shawn Moore
 rights: Public Domain
