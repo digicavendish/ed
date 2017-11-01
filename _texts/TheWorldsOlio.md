@@ -2447,4 +2447,4 @@ Unless Some Foolish and unlearned Man,
 That hath not Understanding, Judgement, Wit,  
 For to perceive The Reason that's in it. 
 
-### <p align=center">FINIS.
+### FINIS.
