@@ -1006,7 +1006,7 @@ About thy worke, and in thy Service spends.
 But if thou thinkst, I take not paines, pray speake,  
 Before we part, my Body is but weak.  
 
-#####Soule.
+##### Soule.
 Braine thou hast done thy best, yet thou mightst go  
 To the Grave Learned, their subtle tricks to know:  
 And aske them, how such Fame they do beget,  
@@ -1014,7 +1014,7 @@ When they do write, but of anothers Wit.
 For they have little of their owne, but what  
 They have from others Braines, and Fancies got.  
 
-#####Body.
+##### Body.
 O Soule! I shall not need to take such paines,  
 The labour will be more then all the gaines:  
 For why! the World doth cosen and so cheat,  
@@ -1036,13 +1036,13 @@ By different Language do the World abuse.
 Therefore lye still thou troubled restless Spirit,    
 Seek not for Fame, unlesse thou hast a Merit.  
 
-#####Soule.
+##### Soule.
 Body, when thou art gone, then I dye too,  
 Unlesse some great Act in thy life thou do:  
 But prethee be not thou so wondrous nice,  
 To set my Fame at a great Merits price.  
 
-#####Body.
+##### Body.
 Alas, what can I do to make thee live,  
 Unlesse some wise Instructions thou canst give?  
 Can you direct me to some Noble Act,  
@@ -1050,11 +1050,11 @@ Wherein Vain-glory makes no false Compact?
 Can you direct me which way I shall take,  
 Those that are in distress, happy to make?  
 
-#####Soule.
+##### Soule.
 No, that's unpossible, unlesse all hearts  
 Could be divided into equall parts.  
 
-#####Body.
+##### Body.
 Then prethee be content, seek thou no more;  
 Tis Fortune makes the World to worship, and adore.  
 
@@ -1091,7 +1091,7 @@ Her Corps was borne to Church on gray Goose wing,
 Her Sheet was Paper white to lap her in.  
 And Cotten dyed with Inke, her covering black,  
 With Letters for her Scutcheons print in that.  
-  Fancies bound up with Verse, a Garland made,  
+Fancies bound up with Verse, a Garland made,  
 And at the head, upon her Hearse was laid.  
 And Numbers ten did beare her to the Grave,  
 The Muses nine a Monument her gave.  
@@ -1156,12 +1156,12 @@ My will is done, and that please Woman best.
 ---
 
 ### A Farewell to the MUSES.
-FArewell my Muse, thou gentle harmlesse Spirit,  
+Farewell my Muse, thou gentle harmlesse Spirit,  
 That us'd to haunt me in the dead of Night.    
 And on my Pillow, where my head I laid,  
 Thou sit'st close by, and with my Fancies play'd:  
 Sometimes upon my Eyes you dancing skip,  
-Making a vision of some fine Land-ski  
+Making a vision of some fine Land-skip.  
 Thus with your sportings, kept me oft awake,  
 Not with your noise, for nere a word you spake:  
 But with your Faiery dancing, circling winde,  
