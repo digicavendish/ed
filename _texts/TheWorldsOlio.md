@@ -5,7 +5,7 @@ author: Margaret Cavendish, Duchess of Newcastle
 editor: Shawn Moore
 rights: Public Domain
 source: EEBO-TCP Phase I
-date: 2017
+publication-date: 2017
 
 ---
 
