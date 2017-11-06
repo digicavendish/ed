@@ -13,10 +13,10 @@ copyright: Public Domain
 
 ##### The Protestation of the afflicted Ministers, Printed 1605.
 
-Pag. 4. 
+Pag. 4.   
 _Though the King command any thing contrary to the Word, yet we ought not to resist, but peaceably to forbeare obedience, and sue for grace, and when that cannot be obtained, meekly submit our selves to punishment._
  
-And Pag. 18. 
+And Pag. 18.   
 _It is utterly unlawfull for any Christian Churches by Armed Power against the will of the Civill Magistrate to set up in Publique the true Worship of God, or suppresse any Superstition or Idolatry._
  
 Printed at Oxford, and reprinted at Shrewsbury, 1642.
